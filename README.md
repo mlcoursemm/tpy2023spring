@@ -10,7 +10,7 @@
 
 [Telegram канал](https://t.me/+5vhShJ6psxA3NDYy)
 
-[Telegram группа для обсуждений](https://t.me/+i1FPEYUGuHNhZjAy)
+[Telegram группа для обсуждений](https://t.me/+-9VWHNuL6Ms3MDc6)
 
 [Telegram бот для сдачи задач](t.me/tpy2023bot) @tpy2023bot
 
